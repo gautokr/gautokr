@@ -1,4 +1,4 @@
-### :shamrock: Hello
+### Hello :shamrock:    
 My name is Kiara <br>
 Mainly interested in filmmaking :clapper: and scriptwriting :scroll: <br>
 I like coding webpages :desktop_computer: looking to learn more <br> 
